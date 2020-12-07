@@ -1,3 +1,3 @@
-![The Candy Colored Clown](https://s3.amazonaws.com/paddle8-production/1361/3597/136452/136452-1488390115-Shag%20-%20ACandyColoredClown.jpg)
+![The Candy Colored Clown](https://i.pinimg.com/originals/0a/0a/aa/0a0aaa27bb8775382cfbea9e93cf445e.jpg)
 
 *Credit: [kimball-art-center](http://bit.ly/2JIkfRv)*
